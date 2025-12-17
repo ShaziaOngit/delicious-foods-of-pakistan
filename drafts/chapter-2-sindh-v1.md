@@ -1,0 +1,5 @@
+Chapter 2: Sindh – Spicy and Aromatic Delights (Focus: Karachi)
+Sindh’s cuisine is bold, fiery, and deeply aromatic, shaped by the Indus River, coastal seafood, and a mix of ancient Sindhi traditions with post-Partition Muhajir influences. Karachi, Pakistan’s largest city and bustling port, is a melting pot where street stalls and upscale eateries serve intensely spiced dishes that wake up the senses.
+Key dishes include Sindhi Biryani (spicier than Punjabi versions, with potatoes and sour plums), Karachi-style Nehari (richer and hotter), Pallo Fish (Hilsa fish steamed or curried with mustard and tamarind), Bhugal Gosht (fried mutton with heavy black pepper), Gol Gappay (crispy spheres filled with tangy water), and Rabri (thick sweetened milk dessert). Street food thrives in areas like Burns Road and Boat Basin.
+History and Origin: Many flavors trace back to the ancient Indus Valley Civilization, with Arab, Persian, and later Indian immigrant influences adding layers of heat and tang.
+Cultural Importance: Food reflects Sindh’s vibrant, resilient spirit—shared generously during festivals, seaside gatherings, and daily iftar in Ramadan.
